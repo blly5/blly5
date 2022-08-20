@@ -2,6 +2,6 @@
 
 #### Hello 👏
 
-🔗 [*Blog*](https://www.l1yu.com) •  [*Weibo*](https://weibo.com/237263454)
+🔗 [*Blog*](https://www.l1yu.com) •  [*Weibo*](https://m.weibo.cn/u/3478110764?jumpfrom=weibocom)
 
 <!-- [![Wechat] -->
